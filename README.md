@@ -1,1 +1,1 @@
-Hola profes este es el github del proyecto, aca voy a estar subiendo todos los cambios que haga, cual cosa escribanme a mi correo. 
+Hola profes este es el github del proyecto, aca voy a estar subiendo todos los cambios que haga, cualquier cosa escribanme a mi correo. 
